@@ -1,0 +1,1 @@
+# RMX_Associated_Product
